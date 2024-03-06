@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mahlinot
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning cybersecurity
-- 💞️ I’m looking to collaborate on no ones on this time
+- 💞️ I’m looking to collaborate on no one at the moment
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: no fun fun
